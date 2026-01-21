@@ -1,6 +1,6 @@
 it is exams time oh no ok.
 
-i will be offline in the morning til afternoon GMT+8 time probably 7am to 11am or 12pm
+i will be offline in the morning til afternoon GMT+8 time probably 7am to 12pm
 
 
 
