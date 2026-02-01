@@ -1,5 +1,3 @@
-[additional information not in my strawpage for sensitive topic reasons](https://rentry.co/doitsuui)
-
 ## rate my drawing skills
 
 
