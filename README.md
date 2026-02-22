@@ -1,1 +1,1 @@
-read [this](https://pureblack.straw.page/importance) before you friend me.
+recommended read [this](https://pureblack.straw.page/importance) before you friend me
