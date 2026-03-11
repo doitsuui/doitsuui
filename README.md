@@ -14,5 +14,9 @@
 jpgc madness (i love them theyre so goated)
 </p>
 <p align="center">
-  <img width="579" height="356" src="https://media.discordapp.net/attachments/1380856746305654807/1480047658180804758/image.png?ex=69ae414b&is=69acefcb&hm=d1d1b577583af181b7573cf4a5569e8daa261f0a308ee3c23a186cb76018ce7e&=&format=webp&quality=lossless&width=521&height=320">
+  <img width="300" height="300" src="https://media.discordapp.net/attachments/1380856746305654807/1481215929500041266/8TuMb8AAAAGSURBVAMAAHgHHy7JybQAAAAASUVORK5CYII.png?ex=69b28155&is=69b12fd5&hm=7304191b4a5b64d08f235a9f01a1cd5b337aade609a04179178cf35f9ff01ea9&=&format=webp&quality=lossless&width=360&height=360" />
+</p>
+
+<p align="center">
+THIS IS MY BIRTHDAY COUNTDOWN SKIN OK!!!!
 </p>
