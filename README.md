@@ -1,14 +1,6 @@
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎[atabook](https://magicaldoc.atabook.org/)‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎୨ৎ ‎‎ ‎‎ ‎‎ ‎ [strawpage](https://thelivingroom.straw.page/)
 
-<p align="center">
-  <img width="380" height="310" src="https://i.pinimg.com/736x/60/87/a1/6087a19d5fefb20c87c87979fdf6032e.jpg">
-</p>
-
-
-<p align="center">
-<sub>touchy feely fool by ajr.</sub>
-</p>
 
 
 <p align="center">
