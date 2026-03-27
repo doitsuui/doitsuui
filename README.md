@@ -1,7 +1,7 @@
 <p align="left">
   <img src="https://static.wikia.nocookie.net/cookierun/images/c/c4/Melon_soda_illustration.png/revision/latest?cb=20250320234127" width="150" align="left"/>
   
-$\normalsize{\textsf{Expect me not to talk that much unless we are close friends.}}$
+$\normalsize{\textsf{Expect me not to talk that much unless we are close friends but freely interact with me, i am nice!}}$
 
 <sub>[atabook](https://magicaldoc.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://thelivingroom.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ please support people in need [here](https://arab.org/)</sub>
 
