@@ -2,32 +2,29 @@
 ————————————————————————————
 </p>
 <p align="center">
-----------------
-</p>
-<p align="center">
 $\Huge{\textsf{꒰ ‎ Kiru  . ‎ 𝚃𝚊𝚒 ‎ ꒱}}$
 </p>
 <p align="center">
 $\large{\textsf{any pronouns 𓏻 minor (18-)}}$
 </p>
+
+
 <p align="center">
-----------------
+$\Large{\textsf{— BEFORE YOU INTERACT —}}$
 </p>
 <p align="center">
-wip
+<p align="center">
+  I allow any age to interact with me as long as they respect boundaries, I do not allow people over the age of 30 or under the age of 12 to interact with me.
 </p>
 <p align="center">
 __________________________________________________________________
 </p>
 
-<p align="left">
-  <img src="https://static.wikia.nocookie.net/unstable-universe-mc/images/0/04/Tai.png/revision/latest?cb=20260204131752" width="130" align="left"/>
-  
+<p align="center">
 $\normalsize{\textsf{Expect me not to talk that much unless we are close friends but freely interact with me, i am nice!}}$
-
-$\small{\textsf{tai tai tai sahur}}$
-
-<sub>[atabook](https://magicaldoc.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ please support people in need [here](https://arab.org/)</sub>
-
-
 </p>
+<p align="center">
+$\small{\textsf{tai tai tai sahur}}$
+</p>
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <sub>[extended about me](https://strafbombed.straw.page/), recommended to read. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ [atabook](https://magicaldoc.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ support people in need [here](https://arab.org/)</sub>
