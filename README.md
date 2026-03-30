@@ -5,7 +5,7 @@ $\normalsize{\textsf{Expect me not to talk that much unless we are close friends
 
 $\small{\textsf{tai tai tai sahur}}$
 
-<sub>[atabook](https://magicaldoc.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://thelivingroom.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ please support people in need [here](https://arab.org/)</sub>
+<sub>[atabook](https://magicaldoc.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ byi wip ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ please support people in need [here](https://arab.org/)</sub>
 
 
 </p>
