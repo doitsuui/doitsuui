@@ -2,7 +2,7 @@
 ————————————————————————————
 </p>
 <p align="center">
-$\Huge{\textsf{꒰ ‎ Kiru  . ‎ 𝚃𝚊𝚒 ‎ ꒱}}$
+$\Huge{\textsf{꒰ ‎ Kiru  . ‎ 𝙰𝚎𝚒𝚗 ‎ ꒱}}$
 </p>
 <p align="center">
 $\large{\textsf{any pronouns 𓏻 minor (18-)}}$
