@@ -21,7 +21,7 @@ __________________________________________________________________
 </p>
 
 <p align="center">
-$\normalsize{\textsf{Expect me not to talk that much unless we are close friends but freely interact with me, i am nice!}}$
+$\normalsize{\textsf{Expect me not to talk that much unless we are close friends but freely interact with me after reading the message above, i am nice!}}$
 </p>
 <p align="center">
 $\small{\textsf{tai tai tai sahur}}$
