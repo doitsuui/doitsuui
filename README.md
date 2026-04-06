@@ -1,4 +1,5 @@
-jfuck rentry dude i make my own in strawpag😭😭😭\
+jfuck rentry dude😭😭😭\
 view my [strawpage](https://hopeisalie.straw.page/) byi, maybe leave a message in my [atabook](https://penaltystrike.atabook.org/) too
 
-GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC [HERE](https://arab.org/)
+GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC [HERE](https://arab.org/)\
+i need to make a site with all my drawings in it bruhhh wtfff
