@@ -1,3 +1,2 @@
-wip for the 46th time
-
-jfuck rentry dude i make my own in strawpag😭😭😭
+jfuck rentry dude i make my own in strawpag😭😭😭\
+view my [strawpage](https://hopeisalie.straw.page/) ig bro, maybe leave a message in my [atabook](https://penaltystrike.atabook.org/)
