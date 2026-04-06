@@ -10,12 +10,9 @@ $\large{\textsf{any pronouns 𓏻 minor (18-)}}$
 
 
 <p align="center">
-$\Large{\textsf{— BEFORE YOU INTERACT —}}$
+$\Large{\textsf{— absolute wip —}}$
 </p>
-<p align="center">
-<p align="center">
-  I allow any age to interact with me as long as they respect boundaries, I do not allow people over the age of 30 or under the age of 12 to interact with me. pleaseeeee read the my about me down there
-</p>
+
 <p align="center">
 __________________________________________________________________
 </p>
