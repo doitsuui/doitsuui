@@ -6,4 +6,5 @@ GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC [HERE](https://a
 i need to make a site With all my Drawings in it bruhhh wtfff
 
 
-I TEND TO REMAKE MY STRAWPAGE ALOT PLSSSPSLSS STO P i need to stop making strawpages i swear.
+I TEND TO REMAKE MY STRAWPAGE ALOT PLSSSPSLSS STO P i need to stop making strawpages i swear.\
+plus i keep updating this FUCKASS README ok wtv bro
