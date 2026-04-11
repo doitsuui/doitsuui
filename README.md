@@ -10,3 +10,5 @@ I TEND TO REMAKE MY STRAWPAGE ALOT PLSSSPSLSS STO P i need to stop making strawp
 plus i keep updating this readme wtv
 
 ## also my name is kiru or aein haii hallo or BONNIE too
+
+listen to And One PLSPSLSPSPLSSLSSSSSSSSSSSSSSSSSSSSSSSSSS
