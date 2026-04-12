@@ -3,12 +3,9 @@ view my [strawpage](https://hopeisalie.straw.page/) byi, maybe leave a message i
 
 GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC [HERE](https://arab.org/)
 
-i need to make a site With all my Drawings in it bruhhh wtfff
 
-
-I TEND TO REMAKE MY STRAWPAGE ALOT
+I TEND TO REMAKE MY STRAWPAGE ALOT\
 plus i keep updating this readme wtv
 
 ## also my name is kiru or aein haii hallo or BONNIE too
-
-listen to And One PLSPSLSPSPLSSLSSSSSSSSSSSSSSSSSSSSSSSSSS
+if yo u want to be friends go friend @march7teen on discord
