@@ -8,4 +8,4 @@ I TEND TO REMAKE MY STRAWPAGE ALOT\
 plus i keep updating this readme wtv
 
 ## also my name is kiru or aein haii hallo or BONNIE too
-if yo u want to be friends go friend @march7teen on discord
+if yo u want to be friends go friend @march7teen on discord Thanks
