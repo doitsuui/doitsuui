@@ -7,5 +7,5 @@ GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC [HERE](https://a
 I TEND TO REMAKE MY STRAWPAGE ALOT\
 plus i keep updating this readme wtv
 
-## also my name is kiru or aein haii hallo or BONNIE too
+## also my name is kiru or aein
 if yo u want to be friends go friend @march7teen on discord Thanks
