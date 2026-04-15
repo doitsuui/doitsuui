@@ -1,11 +1,7 @@
-jfuck Rentry dude😭😭😭\
-view my [strawpage](https://hopeisalie.straw.page/) byi, maybe leave a message in my [atabook](https://penaltystrike.atabook.org/) too
+<p align="center">
+  <img width="250" height="250" src="https://i.pinimg.com/736x/fb/ef/bf/fbefbf512d6e25e5f321c362d2247875.jpg">
+</p>
 
-[GO SUPPORT PEOPL E IN NEED LIKE PALESTINE, CHILDREN, WOMEN, ETC HERE](https://arab.org/)
+ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ [STRAWPAGE](https://hopeisalie.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://penaltystrike.atabook.org)
 
-
-I TEND TO REMAKE MY STRAWPAGE ALOT\
-plus i keep updating this readme wtv
-
-## also my name is kiru or aein
-if yo u want to be friends go friend @march7teen on discord Thanks
+  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎    ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ alts:  ‎  [1](https://github.com/gabukin) ‎  [2](https://github.com/japansan) ‎  [3](https://github.com/ifUseekamy) ‎  [4](https://github.com/playingaseprite)
