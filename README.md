@@ -1,10 +1,10 @@
 <p align="center">
-  <img width="250" height="250" src="https://i.pinimg.com/736x/fb/ef/bf/fbefbf512d6e25e5f321c362d2247875.jpg">
+  <img width="266" height="67" src="https://media.discordapp.net/attachments/1380856746305654807/1495317329427431535/image.png?ex=69e5ce48&is=69e47cc8&hm=f1d5af50b54192f799eb465565951d6f9c5e53c10ec170671dc51f94eeb48952&=&format=webp&quality=lossless&width=266&height=67">
 </p>
 
- ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ [STRAWPAGE](https://hopeisalie.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://penaltystrike.atabook.org)
+ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎  ‎ ‎‎‎ [STRAWPAGE](https://hopeisalie.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://penaltystrike.atabook.org)
 
-  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎    ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ alts:  ‎  [1](https://github.com/gabukin) ‎  [2](https://github.com/japansan) ‎  [3](https://github.com/ifUseekamy) ‎  [4](https://github.com/playingaseprite)
+  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎    ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎  ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ alts:  ‎  [1](https://github.com/gabukin) ‎  [2](https://github.com/japansan) ‎  [3](https://github.com/ifUseekamy) ‎  [4](https://github.com/playingaseprite)
 
 
- ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ [daily click c:](https://arab.org/)
+ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎‎ [daily click c:](https://arab.org/)
