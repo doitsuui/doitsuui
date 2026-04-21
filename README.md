@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="266" height="67" src="https://media.discordapp.net/attachments/1380856746305654807/1495317329427431535/image.png?ex=69e5ce48&is=69e47cc8&hm=f1d5af50b54192f799eb465565951d6f9c5e53c10ec170671dc51f94eeb48952&=&format=webp&quality=lossless&width=266&height=67">
+  <img width="524" height="320" src="https://media.discordapp.net/attachments/1483774374065471488/1495722583323054102/7BA4F67C85-CD47-43F3-ADD3-1EAC4F61AB8B7D.png?ex=69e7f075&is=69e69ef5&hm=5130695a163c039770f521b2dd3cdcdabbedceb4eaf0293e0cc4c8629d71b495&=&format=webp&quality=lossless&width=924&height=520">
 </p>
 
  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎  ‎  ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎‎‎ ‎  ‎  ‎ ‎  ‎ ‎‎‎ [STRAWPAGE](https://hopeisalie.straw.page/) ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ [ATABOOK](https://penaltystrike.atabook.org)
