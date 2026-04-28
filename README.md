@@ -1,5 +1,5 @@
 ***#imlazytodesignthisagain***\
-homestuck fandom iwc cause im really scared of u guys.
+homestuck fandom iwc cause im really scared of u guys and very shy
 
 :33 < pfp drawn by me!
 
