@@ -1,7 +1,7 @@
 ***#imlazytodesignthisagain***\
 homestuck fandom iwc cause im really scared of u guys and very shy
 
-:33 < pfp drawn by me!
+i update this readme alot
 
 [strawpage](https://hopeisalie.straw.page/) & [atabook](https://penaltystrike.atabook.org)\
 [music of the day](https://musicoftheday.straw.page/)
