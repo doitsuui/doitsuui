@@ -1,5 +1,5 @@
 ***#imlazytodesignthisagain***\
-homestuck fandom iwc cause im really scared of u guys and very shy
+im really scared of people and very shy do not think i am ignoring u guys
 
 i update this readme alot
 
