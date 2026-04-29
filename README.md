@@ -1,5 +1,6 @@
 ***#imlazytodesignthisagain***\
-im really scared of people and very shy do not think i am ignoring u guys
+im really scared of people and very shy do not think i am ignoring u guys\
+i actually love being interacted with since i am a very lonely person
 
 i update this readme alot
 
