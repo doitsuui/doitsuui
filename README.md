@@ -5,4 +5,4 @@ i actually love being interacted with since i am a very lonely person
 i update this readme alot
 
 [strawpage](https://hopeisalie.straw.page/) & [atabook](https://four13.atabook.org)\
-[music of the day](https://musicoftheday.straw.page/)
+<img width="525" height="320" alt="image" src="https://github.com/user-attachments/assets/b9969ef8-59a7-455d-aa43-ed7c55ddd45f" />
